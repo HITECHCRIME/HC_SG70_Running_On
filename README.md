@@ -8,7 +8,7 @@ Beat: Saint JHN X Manu Crooks X Damso Type Beat "Substance" (Prod. NetuH)
 
 Running on it
 running on and on and
-Running on it
+run, running on it
 running on and on and
 No no no
 
