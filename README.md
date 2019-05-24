@@ -24,3 +24,4 @@ oh ey yeah
 I surrender to the witches and let my companion go.
 Ritual in the forest. Women in pastel colors and clothing surrounding me.
 The perform an immolation. They set me on fire I sign as I burn to charcoal and still move my lips (ending of the song).
+In the meantime I shatter through many mirrors of myself only to reach the end.
