@@ -32,8 +32,6 @@ No no no)
 
 ou ya
 
-ya
-
 gotta get a
 
 (preaching till you're awake yeah
