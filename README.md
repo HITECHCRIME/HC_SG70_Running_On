@@ -5,16 +5,22 @@ Beat: Saint JHN X Manu Crooks X Damso Type Beat "Substance" (Prod. NetuH)
 ## Lyrics
 
 ```
+
+(running on and on)
+running on and on and on (on on)
+running on and on (on on)
+i don't wanna know it all
+
 ey ya ey
 ey ya - ey ey ey
 
 "run, just fucking run
 come on"
 
-na na na x
+na na na
 
-Running on and on
-Running on and on
+running on and on and on
+Running on and on (on)
 
 Running on and on
 and on and on and on
@@ -22,7 +28,7 @@ on and on
 running on and on and on
 (ya)
 i don't wanna know it all
-- just running
+i'm just running
 
 (Running on it
 running on and on and
@@ -32,11 +38,17 @@ No no no)
 
 ou ya
 
-gotta get a
+bro, gotta get it away ey
+blade in, made it okay
+fucking made it right, die
+got a say it all the waaaaay
+got it wreck ey
+quote... the... daft... craze...
+
 
 (preaching till you're awake yeah
 stay away yeah oh ey yeah)
-got a say it all the waaaaay
+
 
 x
 x
@@ -53,8 +65,8 @@ fuck it get it away
 
 preaching till you're awake yeah
 stay away yeah
+problem brought
 oh ey yeah
-
 
 ```
 
